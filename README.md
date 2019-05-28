@@ -3,6 +3,4 @@ Good Morning Team !!! Let your passion be what drives you in your success :)
 
 2,000,000 baht don't forget that paw
 
-Extra editing on read-me file  
-
-Updated locally
+20,000,000 baht go for it
