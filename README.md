@@ -5,6 +5,4 @@ Good Morning Team !!! Let your passion be what drives you in your success :)
 
 20,000,000 baht go for it
 
-## Purpose
-
-This file is just a readme file.
+Hi Bitch!!!!
